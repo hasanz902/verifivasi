@@ -1,2 +1,0 @@
-# verifivasi
-All
